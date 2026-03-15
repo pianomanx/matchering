@@ -6,6 +6,7 @@ You keep our ship afloat.
 
 ## Coffee
 
+- **[Jonathan Cohen][Boosty]** ☕
 - **[Tommy Tyrell][Boosty]** ☕☕
 - **[Anonymous][Tribute]** (Subscriber) ☕☕☕☕☕☕☕☕☕☕
 - **[Bizabit][Boosty]** ☕☕
