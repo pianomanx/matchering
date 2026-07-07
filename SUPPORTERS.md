@@ -6,6 +6,7 @@ You keep our ship afloat.
 
 ## Coffee
 
+- **[C M][Boosty]** ☕☕
 - **[G.Z.][Tribute]** ☕☕☕☕☕
 - **[James Westwood][Boosty]** ☕☕
 - **[Jonathan Cohen][Boosty]** ☕
